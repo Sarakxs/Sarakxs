@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @Sarakxs
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Toss your dirty shoes in my washing machine heart
+Baby, bang it up inside
+I'm not wearing my usual lipstick
+I thought maybe we would kiss tonight
+Baby will you kiss me already and
+Toss your dirty shoes in my washing machine heart
 
-<!---
-Sarakxs/Sarakxs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
